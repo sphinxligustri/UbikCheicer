@@ -39,3 +39,9 @@ ToDo:
 * sponsored by ..
 
 I want to see Ubik make the theatres in a 60/70s look and feel.
+
+
+Disclaimer: 
+It works, but you need to slide the block of cheese on a sheet of paper. Orelse it won't easily slide.
+It's gratifying to make slices that are perfect for making toast. 
+I store slices in pairs in the freezer and they are, usually, easily separated when frozen. Almost perfect when cooking for one.
